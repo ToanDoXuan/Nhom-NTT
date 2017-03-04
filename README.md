@@ -1,1 +1,3 @@
 ![alt text](https://github.com/ToanDoXuan/Nhom-NTT/blob/master/17142374_1827569934172641_423484445_o.png "Truyen Son Tinh Thuy Tinh")
+![alt text](https://github.com/ToanDoXuan/Nhom-NTT/blob/master/17122328_1730104453967939_56292135_o.jpg "Truyen Son Tinh Thuy Tinh")
+![alt text](https://github.com/ToanDoXuan/Nhom-NTT/blob/master/17149093_1730104473967937_2143740683_o.jpg "Truyen Son Tinh Thuy Tinh")
